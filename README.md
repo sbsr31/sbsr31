@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a personal website<br>💬 Ask me about my university and work experience!<br>💬 Reach me at sbsr31@gmail.com
+Passionate Computer Science Student<br>🏫 De Montfort University<br>💻 Freelancer at UpWork<br>🔭 I’m currently working on a personal website<br>💬 Ask me about my university and work experience!<br>💬 Reach me at sbsr31@gmail.com
 
 
 ## 🌐 Socials:
